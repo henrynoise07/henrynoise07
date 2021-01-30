@@ -2,8 +2,8 @@
 
 Name: Henry Noise.  
 Birthday: xx/xx/2007.  
-Hoobies: Play basketball 🏀, mobile games, code, read books, hang out,...   
-
+Nationality: Vietnamese  
+Hoobies: Play basketball 🏀and mobile games, code, read books and blog, hang out, listen to music,...  
 Social network:  
 1. Facebook: [Henry Noise](https://www.facebook.com/henry.so.noise).  
   
