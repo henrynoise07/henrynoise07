@@ -6,4 +6,6 @@ Hoobies: Play basketball 🏀, mobile games, code, read books, hang out,...
 
 Social network:  
 1. Facebook: [Henry Noise](https://www.facebook.com/henry.so.noise).  
+  
+Email: giahungvngl@gmail.com  
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=efcac2)
