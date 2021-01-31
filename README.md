@@ -1,6 +1,7 @@
 ### ✨ Welcome to my profile ✨
 
 Name: Henry Noise.  
+Nickname: Onii-sama, Wibu trúa,...  
 Birthday: xx/xx/2007.  
 Nationality: Vietnamese  
 Hoobies: Play basketball 🏀and mobile games, code, read books and blog, hang out, listen to music, watch anime,...  
