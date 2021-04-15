@@ -16,4 +16,4 @@ Email:
 2. giahungvngl@gmail.com  
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&color=cccccc)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=000000)
