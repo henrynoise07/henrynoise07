@@ -19,5 +19,6 @@
 ⇝ Social network:  
 ↳ Facebook: [Henry Noise](https://www.facebook.com/henry.so.noise/)  
 ↳ Instagram: [Henry Noise](https://www.instagram.com/_hwng.g_/)  
+₪ Ask me before using this template ₪  
   
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=000000)  
