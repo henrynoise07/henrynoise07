@@ -2,13 +2,13 @@
   
 ⇝ Name: Henry Noise  
 ⇝ Nationality: Vietnamese  
-⇝ Nickname: Hưng Caon't, rickroller, Hén dì, H97, Bích Hưng,...   
+⇝ Nickname: Hưng Caon't, rickroller, Hén dì, H97,...   
 ⇝ Rapname: Hwng G  
 ⇝ Birthday: 12/4   
 ⇝ Zodiac: Aries ♈  
 ⇝ Gender: Male ♂  
 ⇝ Sexuality: Heterosexual  
-⇝ Status: in a relationship with Nguyen Ngoc Linh  
+⇝ Status: in a relationship  
 ⇝ Jobs:  
 ↳ UI designer  
 ↳ Front-end coder  
