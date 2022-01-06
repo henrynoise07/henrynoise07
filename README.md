@@ -8,7 +8,7 @@
 ⇝ Zodiac: Aries ♈  
 ⇝ Gender: Male ♂  
 ⇝ Sexuality: Heterosexual  
-⇝ Status: in a relationship  
+⇝ Status: single  
 ⇝ Jobs:  
 ↳ UI designer  
 ↳ Front-end coder  
