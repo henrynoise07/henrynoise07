@@ -16,7 +16,7 @@
 ⇝ Idol: Hưng Cao, Eminem, Billie Eilish, 163 braces, Phúc Du, Kristin Sesselja,...  
 ⇝ Hobbies??? Go find out yourself  
 ⇝ Social network:  
-↳ Facebook: [Henry Noise](https://www.facebook.com/hlc.henrynoise)  
+↳ Facebook: [Henry Noise](https://www.facebook.com/tracdogiahung)  
 ↳ Instagram: [Henry Noise](https://www.instagram.com/_hwng.g_/)  
 ↳ Soundcloud: [Henry Noise](https://soundcloud.com/henry-noise-469811517)
 
